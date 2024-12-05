@@ -1,6 +1,7 @@
 hi im cheerios, im usually on ponytown vibing 
 i accept friends who are 18+
-you can friend me on discord to if ya like :D
+you can friend me on discord to if ya like 
+though i dont fw senstive players, sorry i like to joke around a lot. 
 dachurros
 
 <!---
